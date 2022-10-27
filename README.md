@@ -1,6 +1,6 @@
+(https://pbs.twimg.com/profile_banners/1585697757217533952/1666897732/600x200)
 Hi, I'm Zahid Hasan Bhuiyan 👋
 #### 👑 I am Web Designer
-![👑 I am Web Designer](https://pbs.twimg.com/profile_banners/1585697757217533952/1666897732/600x200)
 
 I’m a Web Designer who is passionate about making error-free websites with 100% client satisfaction. I have a passion for learning and sharing my knowledge with others as publicly as possible. I am strategic, goal-oriented, and always work with an end goal in mind. I pride myself on doing quality work and maintain excellent communication.
 

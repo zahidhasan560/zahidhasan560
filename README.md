@@ -1,4 +1,4 @@
-### Hi there 👋, Hi, I'm Zahid Hasan Bhuiyan 👋
+Hi, I'm Zahid Hasan Bhuiyan 👋
 #### 👑 I am Web Designer
 ![👑 I am Web Designer](https://pbs.twimg.com/profile_banners/1585697757217533952/1666897732/600x200)
 
